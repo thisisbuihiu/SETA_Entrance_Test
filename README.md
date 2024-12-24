@@ -1,1 +1,0 @@
-# SETA_Entrance_Test
